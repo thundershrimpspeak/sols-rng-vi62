@@ -1,4 +1,4 @@
-#  
+#  sol's rng Script no-ban is the best sol's rng Script, featuring speed and instant win. Safe and powerful for all your needs.
 
 
 
